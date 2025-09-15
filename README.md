@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on you :fire:
 - 📫 How to reach me :nah
 - 😄 Pronouns: they/them
-- ⚡ Fun fact: my liver
+- ⚡ Fun fact: i love yaoi :3
 
 <!---
 highnickk/highnickk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
