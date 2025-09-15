@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @highnickk
 - 👀 I’m interested in speedcubing, math, voice acting, and men
-- 🌱 I’m currently learning java
+- 🌱 I’m currently learning java and python
 - 💞️ I’m looking to collaborate on you :fire:
 - 📫 How to reach me :nah
 - 😄 Pronouns: they/them
