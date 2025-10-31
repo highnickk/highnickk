@@ -2,9 +2,9 @@
 - 👀 I’m interested in speedcubing, math, voice acting, and men
 - 🌱 I’m currently learning java and python
 - 💞️ I’m looking to collaborate on you :fire:
-- 📫 How to reach me :nah
+- 📫 How to reach me discord
 - 😄 Pronouns: they/them
-- ⚡ Fun fact: i love yaoi :3
+- ⚡ Fun fact: i like men
 
 <!---
 highnickk/highnickk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
